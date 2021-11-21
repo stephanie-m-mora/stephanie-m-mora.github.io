@@ -1,1 +1,1 @@
-# stephanie-m-mora.github.io
+Map of My Favorite Destinations
